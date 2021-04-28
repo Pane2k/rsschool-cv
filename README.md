@@ -1,1 +1,1 @@
-# rsschool-cv
+https://pane2k.github.io/rsschool-cv/cv
